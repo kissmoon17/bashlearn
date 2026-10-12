@@ -8,3 +8,4 @@ learned how to get my 1st achievement badge **"Quickdraw"**
 trying to get a badge called **"pull shark"**
 -Getting it
 -didnt get it 
+-still trying to geet it 
