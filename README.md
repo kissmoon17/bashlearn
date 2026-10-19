@@ -10,3 +10,5 @@ trying to get a badge called **"pull shark"**
 -didnt get it 
 -still trying to get it 
 -not working at all last try?.
+
+-finally got the pull shark achievement.
