@@ -12,3 +12,4 @@ trying to get a badge called **"pull shark"**
 -not working at all last try?.
 
 -finally got the pull shark achievement.
+-it took about 5/6 days to get this might be some server issues maybe.
